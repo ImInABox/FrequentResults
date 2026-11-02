@@ -1,2 +1,2 @@
 # FrequentResults
-Privay Policy for Frequent Results App
+Privacy Policy for Frequent Results App
